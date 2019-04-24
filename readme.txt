@@ -1,2 +1,2 @@
-Git is a convertion controll system
-Git is free
+Git is a  distributec verion controll system
+Git is free  software
