@@ -1,3 +1,7 @@
-Git is a  distributec verion controll system
-Git is free  software distributed under the GPL.
-Git has a mutable index called stage
+wit es a  distributec vfda  sdf fdd dderion controll system
+it is free  software distributed under the GPL.
+s t mutable index call
+idfjfadjf 
+ dkajf; kjlkdjf lajianqin aqjfafahgdasdf
+anajjfa j jfjaf
+have a change 
